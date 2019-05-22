@@ -1,1 +1,1 @@
-Hello world i'am home and i try to learn sfsdfsdffsfsfdsf
+Hello world i'am home and i try to learn Смысловая нагрузка
