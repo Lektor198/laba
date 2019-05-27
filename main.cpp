@@ -1,1 +1,1 @@
-Zachtite labu pojaluistafsdfdsfdsf
+Zachtite labu pojaluista
