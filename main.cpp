@@ -1,3 +1,1 @@
-lababsafkjafhkafdsfsddfdsdfssdf
-gfdgdfgdfg
-gfdhdfgdf
+Zachtite gitcmd v chest prazdnika
