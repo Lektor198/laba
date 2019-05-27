@@ -1,1 +1,1 @@
-Zachtite labu;
+Zachtite labu pojaluista
